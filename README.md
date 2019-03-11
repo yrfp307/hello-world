@@ -1,2 +1,3 @@
 # hello-world
-Just another repository
+ni gw baru belajar. lah baru masuk github gilaa...
+excited banget gueehh punya github, kayak punya akun pesbuk pertama kali. ya nggak siih?
